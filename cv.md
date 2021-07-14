@@ -18,4 +18,4 @@ I graduated from Belarusian State University of Informatics and Radioelectronics
 - Electronic Security System
 
 ### English
-Upper-Intermediate B1
+Intermediate B1

@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ArtsDr.github.io/rsschool-cv/cv
